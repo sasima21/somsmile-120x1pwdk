@@ -1,1 +1,0 @@
-# somsmile-120x1pwdk
